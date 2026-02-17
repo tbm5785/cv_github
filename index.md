@@ -1,7 +1,7 @@
 # TANISHA MAJI
+![alt text](image.png)
 
-Email ID: [tanishamaji@gmail.com](mailto:tanishamaji@gmail.com)     ![alt text](image.png)
-
+Email ID: [tanishamaji@gmail.com](mailto:tanishamaji@gmail.com)     
 Phone Number: +1 5822038853
 
 **Academic Qualifications**
